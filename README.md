@@ -1,5 +1,5 @@
 # 💫 About Me:
-Sehan is an ambitious undergraduate student of Information and Communication Technology at the University of Colombo.
+I am Sehan undergraduate student of Information and Communication Technology at the University of Colombo.
 
 
 ## 🌐 Socials:
